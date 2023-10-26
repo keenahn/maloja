@@ -1,0 +1,1 @@
+https://web.archive.org/web/20190531021725/https://www.last.fm/api/submissions
